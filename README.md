@@ -9,9 +9,9 @@ Privacy -
 <!--Matt-->
 Ethics -
 <!--Mark-->
-Respect - 
+Respect - Treat others how you wanted to be treated. or get gud
 <!--Swar-->
-Gaming -
+Gaming - FF15 fast
 <!--Swar-->
 Quality - Always perform to the best of your ability
 <!--Mak-->
