@@ -25,7 +25,7 @@ Our group was established with the highest ethical ideals envisioned as the very
 5. Be nice
 6. Boost morale
 
-Swar speaks like an asian when he speaks to Asian students
+Swar speaks like an asian when he speaks to Asian students. Sad kunt.
 <!--Swar-->
 
 **Gaming** -
