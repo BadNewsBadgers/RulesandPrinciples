@@ -4,7 +4,8 @@
 Sustainability -
 <!--Justin-->
 Responsibility -
-<!--Zach-->1. We need to have a fair share in contributing to the group work.
+
+1. We need to have a fair share in contributing to the group work.
 2. Anything we contribute shall have our name attached to it.
 3. When assigned some of the group work we need to ensure we complete our work within the given timeframes and communicate with the team when we have finished.
 
