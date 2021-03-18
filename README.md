@@ -4,7 +4,9 @@
 Sustainability -
 <!--Justin-->
 Responsibility -
-<!--Zach-->
+<!--Zach-->1. We need to have a fair share in contributing to the group work.
+2. Anything we contribute shall have our name attached to it.
+3. When assigned some of the group work we need to ensure we complete our work within the given timeframes and communicate with the team when we have finished.
 Privacy - 
 1. When creating anything ensure the highest level of security possible for personal data.
 2. Only collect data that is necessary and discard safely when no longer needed.
