@@ -19,23 +19,16 @@ Our group was established with the highest ethical ideals envisioned as the very
 
 **Respect** -
 1. Treat others the way you want to be treated.
-2. Use manners and be kind
-3. 3B's 
-4. Be kind
-5. Be nice
-6. Boost morale
-7. No bullying
-8. No harrassment
-9. Racial discrimination
-10. Derogatory terms
+2. Use your manners and be kind.
+3. No form of bullying or discrimination will be tolerated.
 
 <!--Swar-->
 
 **Gaming** -
-1. Code of Conduct
-2. Rules and regulations are to be followed at all times
-3. Cheating/Boosting/Fraud
-4. Unauthorized sharing of private information
+1. Code of Conduct.
+2. Rules and regulations are to be followed at all times.
+3. Cheating will not be tolerated and in will result in a ban.
+4. Unauthorized sharing of private information.
 <!--Swar-->
 
 **Quality** -
