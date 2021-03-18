@@ -5,7 +5,7 @@ Sustainability -
 <!--Justin-->
 Responsibility -
 <!--Zach-->
-Protection of Privacy -
+Privacy -
 <!--Matt-->
 Ethics -
 <!--Mark-->
@@ -15,5 +15,5 @@ Gaming -
 <!--Swar-->
 Quality -
 <!--Mak-->
-Pursuit of Excellence -
+Excellence -
 <!--Mak-->
