@@ -9,7 +9,7 @@ Protection of Privacy -
 <!--Matt-->
 Ethics -
 <!--Mark-->
-Respect for all members -
+Respect - 
 <!--Swar-->
 Gaming -
 <!--Swar-->
