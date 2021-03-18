@@ -3,13 +3,13 @@
 
 **Sustainability** -
 
-1.Maximizing a global talent pool which includes four generations spread across many cultures
-2.Creating an inclusive workplace
-3.Developing leaders who can leverage diversity
-4.Implementing customized diversity strategies
-5.Communicating with impact and across borders
-
+1.Maximizing a global talent pool which includes four generations spread across many cultures.
+2.Creating an inclusive workplace.
+3.Developing leaders who can leverage diversity.
+4.Implementing customized diversity strategies.
+5.Communicating with impact and across borders.
 <!--Justin-->
+
 **Responsibility** -
 
 1. We need to have a fair share in contributing to the group work.
