@@ -18,13 +18,19 @@
 Our group was established with the highest ethical ideals envisioned as the very minimum to guide our conduct in any workspace. Amongst the numerous factors involved in our considerations we are mindful of all peoples privacy and the need to treat everyone with respect. We take particular care with our image as a responsible and professional team that always has our users best interest at heart and we won't flinch at being honest and forthright when dealing with issues, especially ones involving the law. 
 
 **Respect** -
-
-Treat others how you wanted to be treated. or get gud
+1. Treat others the way you want to be treated.
+2. Use manners and be kind
+3. 3B's 
+4. Be kind
+5. Be nice
+6. Boost morale
 <!--Swar-->
-**Gaming**
 
-FF15 fast
+**Gaming** -
+1. No feeding
+2. Code of conduct
 <!--Swar-->
+
 **Quality** -
 1. Always perform your best
 2. Produce work to a high standard
