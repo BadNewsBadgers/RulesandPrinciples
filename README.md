@@ -1,9 +1,9 @@
 # RulesandPrinciples
 ## Transform team values into rules and principles
 
-Sustainability -
+**Sustainability** -
 <!--Justin-->
-Responsibility -
+**Responsibility** -
 
 1. We need to have a fair share in contributing to the group work.
 2. Anything we contribute shall have our name attached to it.
