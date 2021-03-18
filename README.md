@@ -5,15 +5,15 @@ Sustainability -
 <!--Justin-->
 Responsibility -
 <!--Zach-->
-Protection of Privacy -
+Privacy -
 <!--Matt-->
 Ethics -
 <!--Mark-->
-Respect - Treat each other how you want to be treated. Or get gud scrub
+Respect - 
 <!--Swar-->
-Gaming - ff15 or open
+Gaming -
 <!--Swar-->
-Quality -
+Quality - Always perform to the best of your ability
 <!--Mak-->
-Pursuit of Excellence -
+Excellence - Never give up
 <!--Mak-->
