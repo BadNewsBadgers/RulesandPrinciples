@@ -24,6 +24,8 @@ Our group was established with the highest ethical ideals envisioned as the very
 4. Be kind
 5. Be nice
 6. Boost morale
+
+Swar speaks like an asian when he speaks to Asian students
 <!--Swar-->
 
 **Gaming** -
