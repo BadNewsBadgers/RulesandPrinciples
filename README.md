@@ -24,13 +24,20 @@ Our group was established with the highest ethical ideals envisioned as the very
 4. Be kind
 5. Be nice
 6. Boost morale
+7. No bullying
+8. No harrassment
+9. Racial discrimination
+10. Derogatory terms
 
 Swar speaks like an asian when he speaks to Asian students. Sad kunt.
 <!--Swar-->
 
 **Gaming** -
-1. No feeding
-2. Code of conduct
+1. Code of Conduct
+2. No bullying
+3. No harrassment
+4. Racial discrimination
+5. Derogatory terms
 <!--Swar-->
 
 **Quality** -
