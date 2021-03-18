@@ -25,3 +25,6 @@ Quality - Always perform your best
 <!--Mak-->
 Excellence - Never give up
 <!--Mak-->
+
+## Meeting Times
+Every morning before class starts.
