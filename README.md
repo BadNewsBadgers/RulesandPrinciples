@@ -29,15 +29,13 @@ Our group was established with the highest ethical ideals envisioned as the very
 9. Racial discrimination
 10. Derogatory terms
 
-Swar speaks like an asian when he speaks to Asian students. Sad kunt.
 <!--Swar-->
 
 **Gaming** -
 1. Code of Conduct
-2. No bullying
-3. No harrassment
-4. Racial discrimination
-5. Derogatory terms
+2. Rules and regulations are to be followed at all times
+3. Cheating/Boosting/Fraud
+4. Unauthorized sharing of private information
 <!--Swar-->
 
 **Quality** -
