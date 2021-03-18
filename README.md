@@ -7,7 +7,7 @@ Responsibility -
 <!--Zach-->
 Privacy - 
 1. When creating anything ensure the highest level of security possible for personal data.
-2. Only collect data that is necessary and discard safely when no loger needed.
+2. Only collect data that is necessary and discard safely when no longer needed.
 <!--Matt-->
 Ethics -
 <!--Mark-->
