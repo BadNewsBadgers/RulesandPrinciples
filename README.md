@@ -27,4 +27,4 @@ Our group was established with the highest ethical ideals envisioned as the very
 <!--Mak-->
 
 ## Meeting Times
-Every morning before class starts.
+Every morning 10 minutes before class starts.
