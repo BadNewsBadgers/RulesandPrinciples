@@ -5,7 +5,9 @@ Sustainability -
 <!--Justin-->
 Responsibility -
 <!--Zach-->
-Privacy -
+Privacy - 
+1. When creating anything ensure the highest level of security possible for personal data.
+2. Only collect data that is necessary and discard safely when no loger needed.
 <!--Matt-->
 Ethics -
 <!--Mark-->
@@ -13,7 +15,7 @@ Respect -
 <!--Swar-->
 Gaming -
 <!--Swar-->
-Quality - Always perform to the best of your ability
+Quality -
 <!--Mak-->
-Excellence - Never give up
+Excellence -
 <!--Mak-->
