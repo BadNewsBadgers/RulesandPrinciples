@@ -2,6 +2,13 @@
 ## Transform team values into rules and principles
 
 **Sustainability** -
+
+1.Maximizing a global talent pool which includes four generations spread across many cultures
+2.Creating an inclusive workplace
+3.Developing leaders who can leverage diversity
+4.Implementing customized diversity strategies
+5.Communicating with impact and across borders
+
 <!--Justin-->
 **Responsibility** -
 
