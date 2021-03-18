@@ -21,15 +21,15 @@ Our group was established with the highest ethical ideals envisioned as the very
 
 Treat others how you wanted to be treated. or get gud
 <!--Swar-->
-**Gaming** -
+**Gaming**
 
 FF15 fast
 <!--Swar-->
-**Quality** -
+**Quality**
 1. Always perform your best
 2. Produce work to a high standard
 <!--Mak-->
-**Excellence** -
+**Excellence**
 1. Pursue exceptional service
 2. Never give up
 <!--Mak-->
