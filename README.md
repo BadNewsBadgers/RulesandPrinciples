@@ -21,7 +21,7 @@ Respect - Treat others how you wanted to be treated. or get gud
 <!--Swar-->
 Gaming - FF15 fast
 <!--Swar-->
-Quality -
+Quality - Always perform your best
 <!--Mak-->
-Excellence -
+Excellence - Never give up
 <!--Mak-->
